@@ -1,5 +1,4 @@
-# idealizedparentprotocol
-_Dr Daniel P Brown Guided Protocol _
+Dr Daniel P Brown Guided Protocol
 Visualize yourself with an ideal parent.
 First settle down in a comfortable position. 
 Now, imagine yourself as a child. 
